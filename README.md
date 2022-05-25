@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chicken1136
+- 👀 I’m interested in Coding!
+- 📫 How to reach me - chicken1136#4392 on discord
+-
